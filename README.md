@@ -27,5 +27,5 @@ Developed for Nexora AI Internship - November 2025
 
 ---
 
-**📧 Contact**: [Your Email]  
-**🔗 LinkedIn**: [Your LinkedIn]
+**📧 Contact**: sridharanyogesh@gmail.com
+**🔗 LinkedIn**: [[Your LinkedIn](https://www.linkedin.com/in/yogeshkannan-s)
